@@ -1,3 +1,5 @@
+Can you for fuck sake stop enabling QUICK BUY option over and over again, and make me two times auto-buy the NFT I didnt even want???
+
 <div align="center">
   <br>
   <img alt="S◎LSniperNFT" src="https://raw.githubusercontent.com/kcotoi/SOLSniperNFT-Releases/master/images/SolSniperNFTLogo.png" width="300px">
